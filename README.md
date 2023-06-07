@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cinaraagazhada
+- 👋 Hi, I’m Chinara Aghazada
 
 
 <!---
